@@ -1,2 +1,2 @@
 # data-recovery
-Avail a complete data recovery services in UK through a professional data recovery specialists.
+Obtaining knowledge of data recovery even repairing devices whereas go through the content.
